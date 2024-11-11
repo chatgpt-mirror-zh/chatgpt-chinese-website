@@ -1,6 +1,6 @@
 # ChatGPT中文版-中文网人工智能对话平台。ChatGPT中文网是一个提供人工智能对话服务的平台。
 
-在这里,您可以学习到最新的AI技术、应用案例以及相关领域的前沿知识。
+在这里,您可以学习到最新的AI技术、应用案例以及相关领域的前沿知识。 
 ChatGPT中文版,ChatGPT官网,ChatGPT中文网,ChatGPT中文站,ChatGPT中文网站,chatgpt中文镜像,ChatGPT国内版,ChatGPT中国站,ChatGPT,人工智能,ChatGPT中文网官网,ChatGPT镜像
 
 ## ChatGPT中文版-中文网站
